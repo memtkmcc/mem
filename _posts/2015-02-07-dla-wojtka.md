@@ -1,7 +1,7 @@
 ---
 layout: blog
 category: blog
-published: false
+published: true
 title: Dla Wojtka
 ---
 
@@ -18,4 +18,3 @@ A gdyby tak stworzyć nośnik, który będzie: niezależny od komercyjnych moloc
 Z ważnymi sprawami nie warto zwlekać. Dlatego zaczynam realizację mojego pomysłu tego same dnia, czyli dziś, w sobotę, 7 lutego 2015. Więcej szczegółów wkrótce. Jeśli chcesz dowiedzieć się więcej, pomóc, podsunąć własne pomysły, podzielić się własnym doswiadczeniem, daj mi znać na maila mem@tkm.cc albo przez Twittera na @memtkmcc
 
 ~Adam Andrzej Jaworski
-
