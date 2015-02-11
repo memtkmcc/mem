@@ -3,6 +3,7 @@ layout: blog
 category: blog
 published: true
 title: Szkatułka
+splash: "https://raw.githubusercontent.com/memtkmcc/starter/gh-pages/img/usr/quad-tty.jpg"
 ---
 
 Czym dokładnie ma być i dlaczego miałbyś w ogóle chcieć stworzyć własną?
