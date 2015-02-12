@@ -3,7 +3,6 @@ layout: blog
 category: blog
 published: true
 title: Cybernetic Eternity
-splash: "https://raw.githubusercontent.com/memtkmcc/starter/gh-pages/img/usr/quad-tty.jpg"
 ---
 
 To jakaś ironia losu, że pewna nieufność, połączona z brakiem szczególnego entuzjazmu dla świata cyfrowych słów i obrazów, które, mimo swej profesji, dzieliłem z Wojtkiem, doprowadziły do tego, że o mało co zupełnie przegapiłbym Jego pogrzeb na cmentarzu w pięknej Oliwie, na który swego czasu mieliśmy panoramiczny widok z naszego siódmego piętra, na Gdańca. Bo nie korzystam z, ani nie odwiedzam Facebooka, a przyjaciele z młodości myśleli, że skoro wszyscy wiedzą, bo na FB to ogłaszali, to ja też.
