@@ -7,11 +7,6 @@ prose:
   relativeLinks: 'http://mem.tkm.cc/links.jsonp'
   media: 'media'
   metadata:
-    - name: "splash"
-      field:
-      element: "text"
-      label: "Splash image"
-      value: ""
     _posts:
       - name: "category"
         field:
