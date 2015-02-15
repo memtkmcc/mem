@@ -16,5 +16,3 @@ A gdyby tak stworzyć nośnik, który będzie: niezależny od komercyjnych moloc
 
 ## Dziś realizacja
 Z ważnymi sprawami nie warto zwlekać. Dlatego zaczynam realizację mojego pomysłu tego samego dnia, czyli dziś, w sobotę, 7 lutego 2015. Ta strona powstała w ciągu 2 godzin, z czego godzinę i czterdzieści pięć minut zajęło mi nauczenie się wszystkiego o jej obsłudze, a 15 minut napisanie pierwszego tekstu. Nie ma tu bazy danych, kodu PHP, ani możliwości ataku hakerskiego. Niczego nie instalowałem, po prostu użyłem prostego edytora plików i tekstu w przeglądarce, i reszta zrobiła się sama, za darmo. Jeśli chcesz dowiedzieć się więcej, pomóc, podsunąć własne pomysły, podzielić się doświadczeniem, daj mi znać na maila [mem@tkm.cc](mailto:mem@tkm.cc "Szkatułka - Mem Project") albo przez Twittera na [@memtkmcc](https://twitter.com/memtkmcc "Szkatułka - Mem Project")
-
-~Adam Andrzej Jaworski

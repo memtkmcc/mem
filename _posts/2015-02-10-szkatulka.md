@@ -48,5 +48,3 @@ Trzeci punkt realizuje się już od momentu powstania niniejszej strony i dania 
 Projekt uznam za udany, gdy co najmniej trzy osoby (poza mną) założą swoje własne Szkatułki i będą nad nimi pracować przez co najmniej trzy miesiące.
 
 Po tym czasie Szkatułka staje się w zasadzie samowystarczalna i można ją odwiedzać, linkować, czy w dowolny inny sposób pielęgnować, ale już bez dalszej pracy, która jest konieczna tylko na samym początku, a później zupełnie opcjonalna.
-
-_~Adam Andrzej Jaworski_

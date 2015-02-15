@@ -21,4 +21,3 @@ Właśnie dlatego myślę, że posiadanie własnej Szkatułki jeszcze za życia,
 
 Mimo to, a może właśnie dlatego, jestem przekonany, że warto.
 
-_~Adam_

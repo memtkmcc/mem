@@ -14,5 +14,3 @@ Oglądałem zdjęcia z pogrzebu, i to zadziwiające, że niektórzy zmienili si�
 Wszyscy kiedyś umrzemy, choć daj nam Boże dobre zdrowie i jeszcze długie i ciekawe lata na tym świecie. Może jednak zróbmy coś, by widzieć się nie tylko na pogrzebach, lub historycznych zjazdach. Może jednak zróbmy coś, by nasza wspólna pamięć żyła dłużej niż my sami, jej kruche nośniki.
 
 Może jednak zróbmy coś, by powiernikiem naszej wspólnej pamięci było coś lepszego i trwalszego niż hałaśliwy i wciąż spieszący do otchłani zapomnienia strumień Facebooka, pustkowia Wordpressa, czy zakurzone dyski komputerów na strychach domów naszych prawnuków, o ile będziemy mieli szczęście mieć prawnuki, oczywiście. Może jednak zróbmy coś.
-
-_~Adam Andrzej Jaworski_
