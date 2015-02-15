@@ -7,9 +7,6 @@ title: Gra na Czas
 
 Odkąd pamiętam, zawsze unikałem robienia czegokolwiek z wyprzedzeniem, czy też przed terminem.
 
-Jestem niemal pewien, że dałoby się to zdiagnozować jako niezdrową anomalię, jednak po przekroczeniu 50-tki chyba już nie ma nadziei na zmianę tego typu nawyków i jakoś trzeba się z tym oswoić. Mam na myśli, inni potrzebują się oswoić, bo dla mnie to naturalne.
-Odkąd pamiętam, zawsze unikałem robienia czegokolwiek z wyprzedzeniem, czy też przed terminem.
-
 Jestem niemal pewien, że dałoby się to zdiagnozować jako niezdrową anomalię, jednak po przekroczeniu 50-tki chyba już nie ma nadziei na zmianę tego typu nawyków i jakoś trzeba się z tym oswoić. Mam na myśli, inni potrzebują się oswoić, bo dla mnie to już naturalne.
 
 Gdy mieliśmy dwie godziny lekcyjne na napisanie wypracowania zadanego na polskim w PSB (pamiętam Panią Profesor Balicką, jasne, że pamiętam), całe czterdzieści pięć minut pierwszej, a także trzydzieści minut drugiej, spędzałem gapiąc się w pustą kartkę papieru, i w dal za oknem szkolnej klasy. Ostatnie 15 minut spędzałem na pisaniu w wariackim tempie, do ostatniej minuty przed dzwonkiem. Dodam, że zawsze z dobrym rezultatem. Nigdy mnie ta przedziwna metoda nie zawiodła. Co jednak kluczowe, nigdy nie stosowałem jej świadomie. Tak po prostu się działo.
