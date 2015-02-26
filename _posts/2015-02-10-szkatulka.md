@@ -13,7 +13,7 @@ Czy może prywatna kapliczka, osobisty konfesjonał, albo, co gorsza, prywatne k
 
 Odpowiedź będzie prosta, choć trochę dziwna. Szkatułka ma być trochę każdą z tych, lub podobnych rzeczy, a jednocześnie żadną z nich.
 
-Szkatułka to zadbana, niewielka, i bardzo intymna przestrzeń w Internecie, w której chcesz przechować różne swoje niematerialne skarby, myśli, notatki, nigdy nie wydane nowele i książki, a także listy, które nie zostały wysłane na czas. Może zwłaszcza to ostatnie.
+Szkatułka to zadbana, niewielka, i bardzo intymna przestrzeń w Internecie, w której chcesz przechować różne swoje niematerialne skarby, myśli, notatki, nigdy nie wydane nowele i wiersze, a także listy, które nie zostały wysłane na czas. Może zwłaszcza to ostatnie.
 
 ## Trochę inaczej niż zwykle
 
