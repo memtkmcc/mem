@@ -26,6 +26,6 @@ W czasach, gdy kostka Rubika była nowością i irytującym wyzwaniem dla manual
 
 Dlaczego więc wciąż wstawiam ludziom te swoje zakręcone rebusy, zamiast przedstawiać wprost i zrozumiale to, co mam na myśli? Ewentualnie ich normalnie, choćby wirtualnie, przytulić? Obawiam się, że to jest jakiś dziwny sposób funkcjonowania moich procesów myślowych i komunikacyjnych, tyle, że jeszcze nie zdiagnozowany.
 
-Piszę ten tekst na gorąco, żeby sobie zapamiętać scenkę z "Johnny English Reborn" jako lampkę ostrzegawczą, a publikuję też od razu, zanim zorientuję się, że należało to zostawić w prywatnych notatkach.
+Piszę ten tekst na gorąco, żeby sobie zapamiętać scenkę z _"Johnny English Reborn"_ jako lampkę ostrzegawczą, a publikuję też od razu, zanim zorientuję się, że należało to zostawić w prywatnych notatkach.
 
 Nikt z nas nie jest gotów praktycznie na nic, co nas w życiu spotyka, ale i tak zostaje nam co najwyżej wybór: "Window seat or aisle?"
