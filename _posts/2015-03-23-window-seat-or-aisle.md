@@ -5,7 +5,7 @@ published: false
 title: "Window seat or aisle?"
 ---
 
-Myślałem (tylko przez chwilę, więc nia ma żadnej gwarancji, że to się nadaje do publikacji) czym by tu zwięźle zilustrować sytuację, w której totalny ignorant zadaje głupie pytanie, lub daje beznadziejnie głupią radę, i pierwsze co mi przyszło do głowy, to ta scena z "Johnny English Reborn" -- zaczyna się [w czwartej minucie filmu](https://www.youtube.com/watch?v=k1Ie7lBJWPo) i oczywiście kluczowy moment następuje gdy po chwili doniosłego milczenia Johnny English słyszy: "No". Oto dialog, który trzeba obejrzeć, by złapać w czym rzecz:
+Myślałem (tylko przez chwilę, więc nia ma żadnej gwarancji, że to się nadaje do publikacji) czym by tu zwięźle zilustrować sytuację, w której totalny ignorant zadaje głupie pytanie, lub daje beznadziejnie głupią radę, i pierwsze co mi przyszło do głowy, to ta scena z _"Johnny English Reborn"_ -- zaczyna się [w czwartej minucie filmu](https://www.youtube.com/watch?v=k1Ie7lBJWPo) i oczywiście kluczowy moment następuje, gdy po chwili doniosłego milczenia Johnny English słyszy: _"No"_. Oto dialog, który trzeba obejrzeć, by złapać w czym rzecz:
 
 - J: Master, what is my destiny?
 - M: I'm in touch with a higher power.
