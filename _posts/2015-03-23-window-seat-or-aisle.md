@@ -1,7 +1,7 @@
 ---
 layout: blog
 category: blog
-published: true
+published: false
 title: "Window seat or aisle?"
 ---
 
