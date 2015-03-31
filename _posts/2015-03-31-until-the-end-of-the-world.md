@@ -35,7 +35,7 @@ Pamiętam jak wiosną 1988 roku, gdy minęły zaledwie dwa lub trzy miesiące z 
 
 Ten dach był dużo wyżej niż więzienna brama z jej kolczastą, cierniową koroną.
 
-Widziałem wolnych ludzi, snujących się całkiem zwyczajnie na ulicy, i dzieliło nas tylko kilkadziesiąt metrów czystego, soczyście wiosennego powietrza.
+Widziałem wolnych ludzi, snujących się całkiem zwyczajnie po chodnikach PRL-u, i dzieliło nas tylko kilkadziesiąt metrów czystego, soczyście wiosennego powietrza.
 
 Wtedy po raz pierwszy dotarło do mnie, z mocą, która do dziś wciska człowieka w fotel, że to nie samo uwięzienie było trudne. Wszystkie koszmary śnione przez kolejnych wiele lat miały wspólny motyw: możesz niemal dotknąć wolności, tak blisko, że wydaje się całkiem realna, podczas gdy ona oddalona jest o lata świetlne, jest snem, z którego budzisz się z powrotem, tam.
 
