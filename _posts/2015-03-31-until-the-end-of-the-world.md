@@ -7,6 +7,8 @@ title: Until The End Of The World
 
 To będzie moja krótka opowieść o odzyskanej wolności, o zegarach życia, i o miłości.
 
+Dla Wojtka, Izy i Konrada.
+
 Zawsze mnie bardzo dziwiło, że ludzie, przynajmniej póki cieszą się dobrym zdrowiem, zachowują się, jakby mieli żyć wiecznie. Pozwalają, by czas przelatywał im przez palce jak piasek na plaży, nad morzem, w upalne lato. Bawiliście się kiedyś tak piaskiem na plaży? To taka beztroska medytacja.
 
 Może nie powinno mnie to dziwić. Może faktycznie żyjemy wiecznie. Odradzając się jak leśne kwiaty wiosną, zmartwychwstając jak drzewa, co roku. Albo może co tysiąc lat.
