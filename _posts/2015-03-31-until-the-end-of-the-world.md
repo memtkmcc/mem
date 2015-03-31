@@ -25,4 +25,6 @@ Nie jesteśmy gotowi na niemal idealną społeczną i duchową pustkę po wyrzuc
 
 Nie jesteśmy gotowi na wyczerpującą wszystkie nasze siły chorobę najbliższej nam w świecie osoby. I wtedy okazuje się, że mamy jednak gdzieś ukryte akumulatory, które pozwolą nam przetrwać, aż wróci zasilanie, i jednak razem zmartwychwstaniemy. A może to nie były nasze akumulatory?
 
-Nie jesteśmy gotowi
+Nie jesteśmy gotowi.
+
+Jak trafnie zauważył Matt Gemmell w jednym z najnowszych swoich 'tekstów z głębi duszy ateisty', jak ja je sobie nazywam, tykanie zegara i te jego wskazówki, które bez końca krążą między południem i północą, wprowadzają nas w błąd. To tykanie to nie jest niekończący się taniec w kółko. To jest odliczanie do zera.
