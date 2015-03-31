@@ -35,6 +35,7 @@ Ten dach był dużo wyżej niż więzienna brama z jej kolczastą, cierniową ko
 
 Widziałem wolnych ludzi, snujących się całkiem zwyczajnie na ulicy, i dzieliło nas tylko kilkadziesiąt metrów czystego, soczyście wiosennego powietrza.
 
-Wtedy po raz pierwszy dotarło do mnie, z mocą, która do dziś wciska człowieka w fotel, że to nie samo uwiezięnie było trudne. Wszystkie koszmary śnione przez kolejnych wiele lat miały wspólny motyw: możesz niemal dotknąć wolność, tak blisko, że wydaje się całkiem realna, podczas gdy ona oddalona jest o lata świetlne, jest snem, z którego budzisz się z powrotem, tam.
+Wtedy po raz pierwszy dotarło do mnie, z mocą, która do dziś wciska człowieka w fotel, że to nie samo uwięzienie było trudne. Wszystkie koszmary śnione przez kolejnych wiele lat miały wspólny motyw: możesz niemal dotknąć wolności, tak blisko, że wydaje się całkiem realna, podczas gdy ona oddalona jest o lata świetlne, jest snem, z którego budzisz się z powrotem, tam.
+
 
 
