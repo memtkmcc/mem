@@ -39,5 +39,5 @@ Widziałem wolnych ludzi, snujących się całkiem zwyczajnie po chodnikach PRL-
 
 Wtedy po raz pierwszy dotarło do mnie, z mocą, która do dziś wciska człowieka w fotel, że to nie samo uwięzienie było trudne. Wszystkie koszmary śnione przez kolejnych wiele lat miały wspólny motyw: możesz niemal dotknąć wolności, tak blisko, że wydaje się całkiem realna, podczas gdy ona oddalona jest o lata świetlne, jest snem, z którego budzisz się z powrotem, tam.
 
-
+To przez Wojtka reaktywowałem nigdy wcześniej nie używane konto na FB, i dzięki temu, choć z daleka, mogłem zobaczyć zdjęcia mojego brata Piotra z narzeczoną, Konrada z jego dziewczyną, Kuby z dziewczyną, Igi z mężem, i, kurczę, macie Krzysiu i Ewo rację, życie płynie i nic go nie zatrzyma!
 
