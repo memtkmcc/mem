@@ -33,3 +33,4 @@ Pamiętam jak wiosną 1988 roku, gdy minęły zaledwie dwa lub trzy miesiące z 
 
 Ten dach był dużo wyżej niż więzienna brama z jej kolczastą, cierniową koroną.
 
+Widziałem ludzi snujących się całkiem zwyczajnie na ulicy, i dzieliło nas tylko kilkadziesiąt metrów czystego, soczyście wiosennego powietrza.
