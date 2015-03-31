@@ -28,3 +28,5 @@ Nie jesteśmy gotowi na wyczerpującą wszystkie nasze siły chorobę najbliższ
 Nie jesteśmy gotowi.
 
 Jak trafnie zauważył Matt Gemmell w jednym z najnowszych swoich 'tekstów z głębi duszy ateisty', jak ja je sobie nazywam, tykanie zegara i te jego wskazówki, które bez końca krążą między południem i północą, wprowadzają nas w błąd. To tykanie to nie jest niekończący się taniec w kółko. To jest odliczanie do zera.
+
+Pamiętam jak wiosną 1988 roku, gdy minęły zaledwie dwa lub trzy miesiące z osiemnastu w sumie spędzonych w więzieniu za odmowę służby wojskowej, mieliśmy coś naprawiać na dachu aresztu śledczego w Wejherowie.
