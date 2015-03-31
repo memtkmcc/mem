@@ -23,7 +23,7 @@ Nagle się okazuje, że nie da się już niczego dopisać, ani zmienić w tej je
 
 Nigdy nie jesteśmy gotowi na nic ważnego, co zdarza się w życiu, tak naprawdę. Jesteśmy totalnymi amatorami, rzuconymi na głęboką wodę.
 
-Nie jesteśmy gotowi na niemal idealną społeczną i duchową pustkę po wyrzuceniu nas z religijnej sekty, w której wcześniej zostaliśmy wychowani od dzieciństwa. Ale któregoś dnia dobre anioły przyślą do nas Wojtka z Izą, do naszego mieszkanka w Sopocie, i okaże się, że ta pustka szczęśliwie nie jest tak idealna, jak nam się zdawało.
+Nie jesteśmy gotowi na niemal idealną społeczną i duchową pustkę po wyrzuceniu nas z religijnej sekty, w której wcześniej zostaliśmy wychowani od dziecka. Ale któregoś dnia dobre anioły przyślą do nas Wojtka z Izą, do naszego mieszkanka w Sopocie, i okaże się, że ta pustka szczęśliwie nie jest tak idealna, jak nam się zdawało.
 
 Nie jesteśmy gotowi na wyczerpującą wszystkie nasze siły chorobę najbliższej nam w świecie osoby. I wtedy okazuje się, że mamy jednak gdzieś ukryte akumulatory, które pozwolą nam przetrwać, aż wróci zasilanie, i jednak razem zmartwychwstaniemy. A może to nie były nasze akumulatory?
 
