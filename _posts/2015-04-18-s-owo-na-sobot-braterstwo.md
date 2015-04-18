@@ -14,3 +14,11 @@ Moje małe dziwacto jest jakimś może dowodem na to, jak bardzo człowiek potrz
 Przed koncertem dla Tomka zrobiłem rozeznanie, z którego wynikało, że koncerty naprawdę są potrzebne, bo środki na pomoc zbierane poza i pomiędzy koncertami zwyczajnie nie wystarczają, by skutecznie wesprzeć Tomka w tym tak trudnym dla niego czasie. Wiedziałem, że na tle średniej moja darowizna będzie wyglądać nieproporcjonalnie, więc chciałem to zrobić zupełnie anonimowo najpierw, jednak Ania Wiśniewska, która zgodziła się licytować w moim imieniu, przekonała mnie, że jednak lepiej uczestniczyć imiennie, mimo wszelkich ewentualnych niezręczności i konsternacji, które za tym pójdą.
 
 Nie jestem majętnym człowiekiem. Z dóbr doczesnych posiadam tylko parę komputerów do pracy i trochę sprzętów domowych. Nie mam własnego domu, mieszkania, samochodu, ani nawet telewizora, choć to ostatnie wcale nie przez brak pędu do posiadania. Przez 20 lat w wolnej Polsce raczej biedowałem, choć to głównie na skutek zbyt dużej własnej brawury w prowadzeniu biznesu na początku, niż przez późniejsze życiowe okoliczności.
+
+Przez ostatnie parę lat ciężko pracowałem za granicą, i dzięki temu mam teraz znacznie lepszą sytuację materialną. Nadal jednak bardzo świeżo mam w pamięci chwile, gdy w kolejce do kasy liczyłem dosłownie grosiki i niemal głodowałem. Nie raz, i nie dwa.
+
+Trudne momenty w życiu sprawdzają wszystko: granice naszej wytrzymałości psychicznej, fizycznej, i nasze przyjaźnie też.
+
+
+
+
