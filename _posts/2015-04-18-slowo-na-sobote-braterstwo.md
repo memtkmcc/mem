@@ -25,7 +25,7 @@ Gdy było u mnie i ze mną naprawdę marnie, to moi najbliżsi przyjaciele z cza
 
 Pierwsze zlecenia, dzięki którym odbiłem się od dna, zawdzięczam ludziom, których poznałem w sieci, dzięki wspólnemu pisaniu i rozmowom o wszystkim. Większości z nich nigdy nawet nie spotkałem w realu. Niektórzy z nich pewnie do dziś nawet nie domyślają się jak bardzo mi pomogli, i co naprawdę kryło się za moim "dziękuję!"
 
-Mam dług wdzięczności wobec przyjaciół i przyjaciół moich przyjaciół z WiP. Gdyby nie śmierć Wojtka Jażownika, nie miałbym raczej powodu zaglądać na FB i być może nie dowiedziałbym się o sytuacji Tomka Borewicza. Nie wzbudziłbym też pewnie jakiejś ciekawości moją skromną osobą, ale też nie pomógłbym staremu kumplowi, z którym kiedyś pracowaliśmy w jednej firmie. W takich sytuacjach człowiek jednak pozbywa się obaw o to co sobie inni pomyślą, tylko robi to, co uważa za słuszne.
+Mam dług wdzięczności wobec przyjaciół i przyjaciół moich przyjaciół z WiP. Gdyby nie śmierć Wojtka Jażownika, nie miałbym raczej powodu zaglądać na FB i być może nie dowiedziałbym się o sytuacji Tomka Borewicza. Nie wzbudziłbym też pewnie jakiegoś zainteresowania moją skromną osobą, ale też nie pomógłbym staremu kumplowi, z którym kiedyś pracowaliśmy w jednej firmie. W takich sytuacjach człowiek jednak pozbywa się obaw o to co sobie inni pomyślą, tylko robi to, co uważa za słuszne.
 
 Rocznice, zwłaszcza te okrągłe, są dobrą okazją, by powiedzieć 'sprawdzam' sobie samemu, wierności ideałom, przyjaciołom i tym, którzy stali się nam bliscy w sposób szczególny, dzięki doświadczeniom z naszej odważnej młodości.
 
