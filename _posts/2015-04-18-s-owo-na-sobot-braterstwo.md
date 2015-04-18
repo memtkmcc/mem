@@ -15,9 +15,17 @@ Przed koncertem dla Tomka zrobiłem rozeznanie, z którego wynikało, że koncer
 
 Nie jestem majętnym człowiekiem. Z dóbr doczesnych posiadam tylko parę komputerów do pracy i trochę sprzętów domowych. Nie mam własnego domu, mieszkania, samochodu, ani nawet telewizora, choć to ostatnie wcale nie przez brak pędu do posiadania. Przez 20 lat w wolnej Polsce raczej biedowałem, choć to głównie na skutek zbyt dużej własnej brawury w prowadzeniu biznesu na początku, niż przez późniejsze życiowe okoliczności.
 
-Przez ostatnie parę lat ciężko pracowałem za granicą, i dzięki temu mam teraz znacznie lepszą sytuację materialną. Nadal jednak bardzo świeżo mam w pamięci chwile, gdy w kolejce do kasy liczyłem dosłownie grosiki i niemal głodowałem. Nie raz, i nie dwa.
+Przez ostatnich parę lat ciężko pracowałem za granicą, i dzięki temu mam teraz znacznie lepszą sytuację materialną. Nadal jednak bardzo świeżo mam w pamięci chwile, gdy w kolejce do kasy liczyłem dosłownie grosiki i niemal głodowałem. Nie raz, i nie dwa. Nowe zęby nadal sobie wstawiam. Dosłownie i w przenośni.
 
-Trudne momenty w życiu sprawdzają wszystko: granice naszej wytrzymałości psychicznej, fizycznej, i nasze przyjaźnie też.
+Trudne momenty w życiu sprawdzają wszystko: charakter, granice naszej wytrzymałości psychicznej, fizycznej, i nasze przyjaźnie też.
+
+Gdy było u mnie i ze mną naprawdę marnie, to moi najbliżsi przyjaciele z czasów WiP pomagali mi materialnie i podnosili na duchu, czasem o tym nie wiedząc do końca: Wojtek i Iza Jażownik, Krzysiu i Ewa Gotowiccy, Andrzej Miszk.
+
+Pierwsze zlecenia, dzięki którym odbiłem się od dna, zawdzięczam ludziom, których poznałem w sieci, dzięki wspólnemu pisaniu i rozmowom o wszystkim. Większości z nich nigdy nawet nie spotkałem w realu. Niektórzy z nich pewnie do dziś nawet nie domyślają się jak bardzo mi pomogli, i co naprawdę kryło się za moim "dziękuję!"
+
+
+
+
 
 
 
