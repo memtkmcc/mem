@@ -31,7 +31,7 @@ Rocznice, zwłaszcza te okrągłe, są dobrą okazją, by powiedzieć 'sprawdzam
 
 To dobra okazja, by podziękować za całe Dobro, które było, jest i będzie naszym wspólnym udziałem.
 
-Live Long And Prosper!
+_Live Long And Prosper!_
 
 
 
