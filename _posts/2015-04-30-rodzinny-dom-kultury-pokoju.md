@@ -17,10 +17,10 @@ Wolność, podobnie jak Pokój, też nie jest dana raz na zawsze, o czym my, Pol
 
 Młodym więcej się wybacza, natomiast od starszych więcej się wymaga. Co prawda dojrzałość niekoniecznie idzie w parze z wiekiem, jednak jako pokolenie mamy swoją rolę nadal do wypełnienia.
 
-Inicjatywa powoływania Rodzinnych Domów Kultury Pokoju - tak, w liczbie mnogiej - jest moim zdaniem piękną okazją, by nasze młodzieńcze pragnienia i dążenia spotkały się z naszą dojrzałością i poczuciem odpowiedzialności za przyszłe pokolenia, naszych dzieci, ich dzieci, i wnuków naszych wnuków.
+Inicjatywa powoływania [Rodzinnych Domów Kultury Pokoju](https://polakpotrafi.pl/projekt/dom-kultury-pokoju) - tak, w liczbie mnogiej - jest moim zdaniem piękną okazją, by nasze młodzieńcze pragnienia i dążenia spotkały się z naszą dojrzałością i poczuciem odpowiedzialności za przyszłe pokolenia, naszych dzieci, ich dzieci, i wnuków naszych wnuków.
 
 Większości z nas zostało życia, nawet licząc bardzo optymistycznie, nawet mniej niż minęło lat od założenia WiP. Od nas tylko zależy, czy teraz zamienimy się w starczą Lożę Szyderców z Muppetów, czy też nadal będziemy źródłem inspiracji i wsparciem dla młodszych od nas.
 
 Rodzinny Dom Kultury Pokoju to inicjatywa, która w bardzo praktyczny sposób przyczyni się do pokojowej edukacji obecnych i przyszłych pokoleń, gdyż opiera się nie tylko na głębokim zrozumieniu gdzie i jak zaczyna się pokój między ludźmi, ale też na zrozumieniu, że pokój między ludźmi jest jak ogród, o który stale trzeba dbać, którego nie można pozostawić swemu losowi, a tym bardziej politykom i kapitalistom. To nasz wspólny ogród.
 
-Proponuję niniejszym, by środowisko dawnego Ruchu Wolność i Pokój, wraz z sympatykami, objęło patronat nad pierwszym Rodzinnym Domem Kultury Pokoju, który powstaje w Dąbrówce pod Lublinem niedaleko Lubartowa.
+Proponuję niniejszym, by środowisko dawnego Ruchu Wolność i Pokój, wraz z sympatykami, objęło patronat nad pierwszym [Rodzinnym Domem Kultury Pokoju](https://polakpotrafi.pl/projekt/dom-kultury-pokoju), który powstaje w Dąbrówce pod Lublinem niedaleko Lubartowa.
