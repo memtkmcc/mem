@@ -9,13 +9,13 @@ Podobno Ruch WiP należy do przeszłości, z powodu dziś mamy w to miejsce part
 
 Ale wracając. To jakieś nieporozumienie.
 
-Partie polityczne służą do zupełnie innych rzeczy niż ruchy społeczne, w szczególności Ruch WiP.
+Partie polityczne służą do zupełnie innych rzeczy, niż ruchy społeczne, w szczególności Ruch WiP.
 
-Ruch WiP nie był chyba namiastką czy zamiennikiem tworu partyjnego-politycznego na miarę "możliwości" dostępnych za PRL-u. Nie był nawet polityczno-podobny. Już nie wspomnę, że większość uczestników była zbyt młoda, żeby mieć wyrobione skłonności polityczne we współczesnym sensie.
+Ruch WiP nie był raczej namiastką, ani zamiennikiem tworu partyjnego-politycznego na miarę "możliwości" dostępnych za PRL-u. Nie był nawet polityczno-podobny. Już nie wspomnę, że większość uczestników była zbyt młoda, żeby mieć wyrobione skłonności polityczne we współczesnym sensie.
 
 Jest jednak zasadnicza różnica pomiędzy polityczną wymową, czy nawet politycznymi skutkami, a istotą Ruchu i motywacji osobistych jego uczestników i sympatyków. Ja na przykład miałem wówczas motywacje ideowo-religijne i wręcz anty-polityczne, bo bliżej mi było od zawsze do anarchistów.
 
-Opór wobec komuny można interpretować politycznie. Wszystko można. Jak się człowiek uprze. Ale czy chodziło o politykę? Jakąkolwiek? Nie, w gruncie rzeczy chodziło o wartości i idee, o które WiPowcy do dziś kłócą się zażarcie, niczym nastoletni gniewni.
+Opór wobec komuny można interpretować politycznie. Wszystko można. Jak się człowiek uprze. Ale czy chodziło o politykę? Jakąkolwiek? Nie, w gruncie rzeczy chodziło o wartości i idee, o które WiP-owcy do dziś kłócą się zażarcie, niczym nastoletni gniewni.
 
 Oryginalny Ruch WiP był i pozostanie pewnym unikatem, z całą tą niepowtarzalną aurą tamtych czasów, ze wszystkimi ówczesnymi kontekstami, tworzonymi także przez wiele innych, alternatywnych inicjatyw naszego pokolenia.
 
@@ -37,8 +37,8 @@ Czy jest energia i pomysłowość w nas, by podejmować nowe (a często wciąż 
 
 Z pewnością nie chodzi o to, byśmy bez końca udawali młodzieńców, którzy nie potrafią się pięknie zestarzeć, i, ze spokojem właściwym zebranej życiowej mądrości, zająć miejsca w drugim, lub nawet trzecim rzędzie, pozwalając się wykazać młodości współczesnej.
 
-Z tego co widzę, łatwo z tym restartem WiP-u nie będzie, ale też wciąż nam sporo brakuje, by średnia wieku WiP-wców osiągnęła 80 lat, a do tego przynajmniej część z nas ma szansę zachować jeszcze długo świeżość myśli, bystrość i przenikliwość intuicji i skutecznie opierać się osunięciu w pluszowe fotele Loży Szyderców z Muppetów.
+Z tego co widzę, łatwo z tym restartem WiP-u nie będzie, ale też wciąż nam sporo brakuje, by średnia wieku WiP-owców osiągnęła 80 lat, a do tego przynajmniej część z nas ma szansę zachować jeszcze długo świeżość myśli, bystrość i przenikliwość intuicji, i skutecznie opierać się osunięciu w pluszowe fotele Loży Szyderców z Muppetów.
 
-Problem ten nie dotyczy oczywiście naszych koleżanek z WiP-u, które mają nad nami tę przewagę, że są zawsze młode i piękne. Do czego nikogo chyba nie muszę przekonywać.
+Problem ten nie dotyczy oczywiście naszych koleżanek z WiP-u, które mają nad nami tę przewagę, że są nie tylko mądre, ale też zawsze młode i piękne. Do czego nikogo chyba nie muszę przekonywać.
 
 P.S. Dziękuję Zuzannie Dąbrowskiej oraz Ani Wiśniewskiej, których wypowiedzi podczas konferencji z okazji XXX-lecia WiP w PKiN stały się dla mnie inspiracją do napisania powyższego tekstu.
