@@ -1,9 +1,10 @@
 ---
 layout: blog
 category: blog
-published: false
+published: true
 title: "Ruch WiP -- Next Generation"
 ---
+
 
 Podobno Ruch WiP należy do przeszłości, z powodu dziś mamy w to miejsce partie polityczne i plejadę wszelkiego typu innych, w tym polityczno-podobnych rzeczy, w które kto chce, angażować się może, mimo, że jak zwykle, większości się nie chce -- co akurat, tak na marginesie, całe szczęście.
 
