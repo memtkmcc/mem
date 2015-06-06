@@ -25,7 +25,7 @@ Mimo to, jestem zdania, że Ruch WiP swobodnie mógłby powstać i wręcz kwitn�
 
 Dlaczego twory polityczne nie nadają się do tego celu? Powody są bardzo proste.
 
-Partie muszą stawiać na dzielenie, a nie łączenie ludzi. W swych programowych deklaracjach muszą stawiać na wyrazistość i zawężoną maksymalnie identyfikację ideową, która jest im potrzebna do formułowania ofery wyborczej, która mogłaby się przebić do ich potencjalnych wyborców.
+Partie muszą stawiać na dzielenie, a nie łączenie ludzi. W swych programowych deklaracjach muszą stawiać na wyrazistość i zawężoną maksymalnie identyfikację ideową, która jest im potrzebna do formułowania oferty wyborczej, która mogłaby się przebić do ich potencjalnych wyborców.
 
 Partie muszą zatem respektować realia "rynkowe" demokracji i koncentrować się bardziej na skutecznym marketingu politycznym, niż na ekspozycji wartości i idei. O wierności owym ideom i wartościom w praktyce politycznej nawet nie wspomnę.
 
