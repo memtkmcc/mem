@@ -34,7 +34,7 @@ Partie chcą dostać się do władzy, i tu mogą się zdarzyć dwie rzeczy: albo
 
 Dalej, politycy i partie polityczne mają w swoim DNA wpisaną konieczność gotowości do zawierania (i faktycznego zawierania) kompromisów ideowych. Czasem kwaśnych, gorzkich, a bywa, że znacznie, znacznie gorzej.
 
-Ruch społeczny bez mocnego morale nie przetrwa, i nie będzie w stanie działać skutecznie. Partie polityczne owszem, dadzą radę przetrwać jeszcze długo po wyparowaniu morale, gdyż istnienie opierają na zupełnie innych fundamentach.
+Ruch społeczny bez mocnego morale nie przetrwa, i nie będzie w stanie działać skutecznie. Partie polityczne owszem, dadzą radę przetrwać jeszcze długo po wyparowaniu morale, gdyż istnienie opierają na zupełnie innych fundamentach. Zaraz, zaraz, to akurat mocna strona polityki, paradoksalnie. Z mojego punktu widzenia bezwartościowa jednak zupełnie.
 
 Tylko ruch społeczny idący kompletnie w poprzek politycznych sympatii, grawitacji, powiązań, czy wręcz narastających latami zależności różnego typu, może sobie pozwolić na bezkompromisowość w sferze wartości i idei uznawanych za fundamentalne przez wszystkich uczestników.
 
