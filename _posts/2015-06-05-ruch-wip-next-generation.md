@@ -36,7 +36,7 @@ Dalej, politycy i partie polityczne mają w swoim DNA wpisaną konieczność got
 
 Ruch społeczny bez mocnego morale nie przetrwa, i nie będzie w stanie działać skutecznie. Partie polityczne owszem, dadzą radę przetrwać jeszcze długo po wyparowaniu morale, gdyż istnienie opierają na zupełnie innych fundamentach. Zaraz, zaraz, to akurat mocna strona polityki, paradoksalnie. Z mojego punktu widzenia bezwartościowa jednak zupełnie.
 
-Tylko ruch społeczny idący kompletnie w poprzek politycznych sympatii, grawitacji, powiązań, czy wręcz narastających latami zależności różnego typu, może sobie pozwolić na bezkompromisowość w sferze wartości i idei uznawanych za fundamentalne przez wszystkich uczestników.
+Jak się dobrze zastanowić, to tylko ruch społeczny idący kompletnie w poprzek politycznych sympatii, grawitacji, powiązań, czy wręcz narastających latami zależności różnego typu, może sobie pozwolić na bezkompromisowość w sferze wartości i idei uznawanych za fundamentalne przez wszystkich uczestników.
 
 Więcej, właśnie ta wariacka, bo życiowo niepraktyczna bezkompromisowość ideowa stanowi o sile Ruchu WiP, którą nadal daje się wyczuć w powietrzu, nad naszymi nadal gorącymi głowami.
 
