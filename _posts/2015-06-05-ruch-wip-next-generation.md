@@ -30,7 +30,7 @@ Partie muszą zatem respektować realia "rynkowe" demokracji i koncentrować si�
 
 Partie nie mogą działać bez struktur organizacyjnych i choćby minimalnej piramidy hierarchicznej tychże struktur.
 
-Partie chcą dostać się do władzy, i tu mogą się zdarzyć dwie rzeczy: albo się do władzy dostaną i tym samym przekroczą Rubikon my-oni w relacji społeczeństwo-władza, albo się do władzy nie dostaną i będą w najlepszym razie chwilowymi meteorami na firmamencie demokracji, choć i to już z pewnym ukąszeniem wynikającym z aspiracji do bycia po stronie "oni". Polityka jest ze swej natury zawsze po stronie "oni", nawet jeśli jej aktorzy pozostają w tzw. opozycji, lub wręcz na marginesie.
+Partie chcą dostać się do władzy, i tu mogą się zdarzyć dwie rzeczy: albo się do władzy dostaną, i tym samym przekroczą Rubikon my-oni w relacji społeczeństwo-władza, albo się do władzy nie dostaną, i będą w najlepszym razie chwilowymi meteorami na firmamencie demokracji, choć i to już z pewnym ukąszeniem wynikającym z aspiracji do bycia po stronie "oni". Polityka jest ze swej natury zawsze po stronie "oni", nawet jeśli jej aktorzy pozostają w tzw. opozycji, lub wręcz na marginesie.
 
 Dalej, politycy i partie polityczne mają w swoim DNA wpisaną konieczność gotowości do zawierania (i faktycznego zawierania) kompromisów ideowych. Czasem kwaśnych, gorzkich, a bywa, że znacznie, znacznie gorzej.
 
