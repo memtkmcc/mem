@@ -32,7 +32,9 @@ Partie nie mogą działać bez struktur organizacyjnych i choćby minimalnej pir
 
 Partie chcą dostać się do władzy, i tu mogą się zdarzyć dwie rzeczy: albo się do władzy dostaną, i tym samym przekroczą Rubikon my-oni w relacji społeczeństwo-władza, albo się do władzy nie dostaną, i będą w najlepszym razie chwilowymi meteorami na firmamencie demokracji, choć i to już z pewnym ukąszeniem wynikającym z aspiracji do bycia po stronie "oni". Polityka jest ze swej natury zawsze po stronie "oni", nawet jeśli jej aktorzy pozostają w tzw. opozycji, lub wręcz na marginesie.
 
-Dalej, politycy i partie polityczne mają w swoim DNA wpisaną konieczność gotowości do zawierania (i faktycznego zawierania) kompromisów ideowych. Czasem kwaśnych, gorzkich, a bywa, że znacznie, znacznie gorzej. Ruch społeczny bez mocnego morale nie przetrwa, i nie będzie w stanie działać skutecznie. Partie polityczne owszem, dadzą radę przetrwać jeszcze długo po wyparowaniu morale, gdyż istnienie opierają na zupełnie innych fundamentach.
+Dalej, politycy i partie polityczne mają w swoim DNA wpisaną konieczność gotowości do zawierania (i faktycznego zawierania) kompromisów ideowych. Czasem kwaśnych, gorzkich, a bywa, że znacznie, znacznie gorzej.
+
+Ruch społeczny bez mocnego morale nie przetrwa, i nie będzie w stanie działać skutecznie. Partie polityczne owszem, dadzą radę przetrwać jeszcze długo po wyparowaniu morale, gdyż istnienie opierają na zupełnie innych fundamentach.
 
 Tylko ruch społeczny idący kompletnie w poprzek politycznych sympatii, grawitacji, powiązań, czy wręcz narastających latami zależności różnego typu, może sobie pozwolić na bezkompromisowość w sferze wartości i idei uznawanych za fundamentalne przez wszystkich uczestników.
 
