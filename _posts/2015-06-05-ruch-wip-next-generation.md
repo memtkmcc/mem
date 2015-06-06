@@ -39,7 +39,9 @@ Tylko ruch społeczny idący kompletnie w poprzek politycznych sympatii, grawita
 
 Więcej, właśnie ta wariacka, bo życiowo niepraktyczna bezkompromisowość ideowa stanowi o sile Ruchu WiP, którą nadal daje się wyczuć w powietrzu, nad naszymi nadal gorącymi głowami.
 
-To jest kompletnie nie do podrobienia w świecie polityki. Nigdy nie było, i nigdy nie będzie.
+Właśnie ta bezkompromisowość ideowa daje praktyczną skuteczność w konkretnej akcji, niezależnie od liczebności i zasobów ruchu społecznego. Odwaga, czy wręcz brawura nie jest możliwa, gdy człowiek idzie na ideowe kompromisy, lub też zwyczajnie musi się liczyć z opinią "targetu" ugrupowania w którym uczestniczy. To nie jest jedynie kwestia pewnej łatwości w identyfikacji zagrożeń i "wrogów" w czasach PRL-u.
+
+To wszystko jest kompletnie nie do podrobienia w świecie polityki. Nigdy nie było, i nigdy nie będzie.
 
 Czy jest energia i pomysłowość w nas, by podejmować nowe (a często wciąż te same -- na nowo) wyzwania, jednak w nowy sposób, w nowych kontekstach i uwarunkowaniach, nowymi, lub przynajmniej bardziej współczesnymi metodami, bez sięgania do archaicznych już zapewne i nieskutecznych współcześnie środków z dawnych czasów?
 
