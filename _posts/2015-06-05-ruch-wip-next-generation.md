@@ -6,6 +6,7 @@ title: "Ruch WiP -- Next Generation"
 ---
 
 
+
 Podobno Ruch WiP należy do przeszłości, z powodu dziś mamy w to miejsce partie polityczne i plejadę wszelkiego typu innych, w tym polityczno-podobnych rzeczy, w które kto chce, angażować się może, mimo, że, jak zwykle, większości się nie chce -- co akurat, tak na marginesie, całe szczęście.
 
 Ale wracając. To jakieś nieporozumienie.
@@ -24,7 +25,13 @@ Mimo to, jestem zdania, że Ruch WiP swobodnie mógłby powstać i wręcz kwitn�
 
 Dlaczego twory polityczne nie nadają się do tego celu? Powody są bardzo proste.
 
-Partie nie mogą działać bez struktur organizacyjnych i choćby minimalnej piramidy hierarchicznej tychże struktur. Partie chcą dostać się do władzy, i tu mogą się zdarzyć dwie rzeczy: albo się do władzy dostaną i tym samym przekroczą Rubikon my-oni w relacji społeczeństwo-władza, albo się do władzy nie dostaną i będą w najlepszym razie chwilowymi meteorami na firmamencie demokracji, choć i to już z pewnym ukąszeniem wynikającym z aspiracji do bycia po stronie "oni". Polityka jest ze swej natury zawsze po stronie "oni", nawet jeśli jej aktorzy pozostają w tzw. opozycji lub wręcz na marginesie.
+Partie muszą stawiać na dzielenie, a nie łączenie ludzi. W swych programowych deklaracjach muszą stawiać na wyrazistość i zawężoną maksymalnie identyfikację ideową, która jest im potrzebna do formułowania ofery wyborczej, która mogłaby się przebić do ich potencjalnych wyborców.
+
+Partie muszą zatem respektować realia "rynkowe" demokracji i koncentrować się bardziej na skutecznym marketingu politycznym, niż na ekspozycji wartości i idei. O wierności owym ideom i wartościom w praktyce politycznej nawet nie wspomnę.
+
+Partie nie mogą działać bez struktur organizacyjnych i choćby minimalnej piramidy hierarchicznej tychże struktur.
+
+Partie chcą dostać się do władzy, i tu mogą się zdarzyć dwie rzeczy: albo się do władzy dostaną i tym samym przekroczą Rubikon my-oni w relacji społeczeństwo-władza, albo się do władzy nie dostaną i będą w najlepszym razie chwilowymi meteorami na firmamencie demokracji, choć i to już z pewnym ukąszeniem wynikającym z aspiracji do bycia po stronie "oni". Polityka jest ze swej natury zawsze po stronie "oni", nawet jeśli jej aktorzy pozostają w tzw. opozycji lub wręcz na marginesie.
 
 Dalej, politycy i partie polityczne mają w swoim DNA wpisaną konieczność gotowości do zawierania (i faktycznego zawierania) kompromisów ideowych. Czasem kwaśnych, gorzkich, a bywa, że znacznie, znacznie gorzej.
 
