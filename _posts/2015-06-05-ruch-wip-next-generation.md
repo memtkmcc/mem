@@ -12,7 +12,7 @@ Ale wracając. To jakieś nieporozumienie.
 
 Partie polityczne służą do zupełnie innych rzeczy, niż ruchy społeczne, w szczególności Ruch WiP.
 
-Ruch WiP nie był raczej namiastką, ani zamiennikiem tworu partyjnego-politycznego na miarę "możliwości" dostępnych za PRL-u. Nie był nawet polityczno-podobny. Już nie wspomnę, że większość uczestników była zbyt młoda, żeby mieć wyrobione skłonności polityczne we współczesnym sensie.
+Ruch WiP nie był raczej namiastką, ani zamiennikiem tworu partyjnego-politycznego na miarę "możliwości" dostępnych za PRL-u. Nie był nawet polityczno-podobny. Już nie wspomnę, że większość uczestników była zbyt młoda, żeby mieć wyrobione skłonności polityczne, we współczesnym sensie.
 
 Jest jednak zasadnicza różnica pomiędzy polityczną wymową, czy nawet politycznymi skutkami, a istotą Ruchu i motywacji osobistych jego uczestników i sympatyków. Ja na przykład miałem wówczas motywacje ideowo-religijne i wręcz anty-polityczne, bo bliżej mi było od zawsze do anarchistów.
 
