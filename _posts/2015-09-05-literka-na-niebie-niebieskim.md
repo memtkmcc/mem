@@ -1,13 +1,9 @@
 ---
 layout: blog
-splash: ""
-tags: 
-  - "null"
+category: blog
 published: true
-title: Literka na niebie niebieskim
+title: "Literka na niebie niebieskim"
 ---
-
-
 
 To wszystko przez naszego Belfra (Tomek Borewicz), który uznał za stosowne udać się w kierunku drabiny, czy też schodów, o których dawno temu śpiewali, a zwłaszcza grali, tacy czterej z Led Zeppelin. Przynajmniej tak się odgrażał na fejsbuku, prawda.
 
