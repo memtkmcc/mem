@@ -2,7 +2,7 @@
 layout: blog
 category: blog
 published: true
-splash: "https://raw.githubusercontent.com/memtkmcc/starter/gh-pages/media/11960284_1134283583252620_5872929199849594729_n.jpg"
+splash: "https://raw.githubusercontent.com/memtkmcc/starter/gh-pages/img/usr/literka.jpg"
 title: "Literka na niebie niebieskim"
 ---
 
