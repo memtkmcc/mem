@@ -2,6 +2,7 @@
 layout: blog
 category: blog
 published: true
+splash: "https://raw.githubusercontent.com/memtkmcc/starter/gh-pages/media/11960284_1134283583252620_5872929199849594729_n.jpg"
 title: "Literka na niebie niebieskim"
 ---
 
@@ -18,6 +19,4 @@ Ten nasz przystanek pomiędzy Żabianką Belfra, a Kącikami Jacoba, był jak mi
 Niespodziewane spotkanie po latach z Izą następnego dnia w Kącikach, podobnie jak wcześniej telefon od mojej Grażynki o światełku, które też zapaliła Wojtkowi dokładnie wtedy, gdy my to zrobiliśmy, choć nie wiedziała gdzie i kiedy będziemy, spięły klamrą pamięci tę naszą pielgrzymkę przyjaciół dla przyjaciół.
 
 Dziękuję, że mogłem Was wszystkich spotkać i pogadać chwilę.
-
-![Literka na niebie niebieskim]({{site.baseurl}}/media/11960284_1134283583252620_5872929199849594729_n.jpg)
 
