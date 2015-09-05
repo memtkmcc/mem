@@ -21,4 +21,4 @@ Niespodziewane spotkanie po latach z Izą następnego dnia w Kącikach, podobnie
 
 Dziękuję, że mogłem Was wszystkich spotkać i pogadać chwilę.
 
-![Literka na niebie niebieskim]({{site.baseurl}}/https://scontent.xx.fbcdn.net/hphotos-xlf1/v/t1.0-9/11960284_1134283583252620_5872929199849594729_n.jpg?oh=d778e18d0378b84e5d1587ff71b55231&oe=567C0BD6)
+![Literka na niebie niebieskim]({{site.baseurl}}/media/11960284_1134283583252620_5872929199849594729_n.jpg)
