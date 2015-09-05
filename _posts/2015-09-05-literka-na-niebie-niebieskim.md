@@ -8,6 +8,7 @@ title: Literka na niebie niebieskim
 ---
 
 
+
 To wszystko przez naszego Belfra (Tomek Borewicz), który uznał za stosowne udać się w kierunku drabiny, czy też schodów, o których dawno temu śpiewali, a zwłaszcza grali, tacy czterej z Led Zeppelin. Przynajmniej tak się odgrażał na fejsbuku, prawda.
 
 W całkowicie WiP-owskim stylu, z dnia na dzień, powstał plan naszej wspólnej ze Sławkiem Dutkiewiczem podróży do naszych obolałych i cierpiących kumpli, do Belfra oraz do Jacoba (Wojciech Bankyo Jankowski), któren to całkiem niedawno cudem, nie tylko chirurgicznym chyba, został ocalon, dzięki czemu Syriusz i Pufeć mogą nadal wesoło hasać w Kącikach.
@@ -23,3 +24,4 @@ Niespodziewane spotkanie po latach z Izą następnego dnia w Kącikach, podobnie
 Dziękuję, że mogłem Was wszystkich spotkać i pogadać chwilę.
 
 ![Literka na niebie niebieskim]({{site.baseurl}}/media/11960284_1134283583252620_5872929199849594729_n.jpg)
+
