@@ -1,8 +1,9 @@
 ---
 layout: blog
 splash: ""
-tags: null
-published: false
+tags: 
+  - "null"
+published: true
 title: Literka na niebie niebieskim
 ---
 
