@@ -2,10 +2,12 @@
 layout: blog
 category: blog
 splash: ""
-tags: null
-published: false
+tags: 
+  - "null"
+published: true
 title: "Quem quaeritis? Non est hic."
 ---
+
 
 Czy listopad to smutny miesiąc?
 
@@ -22,4 +24,3 @@ Czy pamiętamy dla nich, czy tylko dla siebie?
 Gdy następnym razem pójdziesz na grób kogoś bliskiego, rozejrzyj się też wokół, spójrz w górę. Wytrwaj w tym nietypowym rozglądaniu się, przez chwilę. Może zobaczysz coś więcej?
 
 _Quem quaeritis? Non est hic._
-
