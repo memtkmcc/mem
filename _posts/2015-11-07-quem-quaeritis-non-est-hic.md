@@ -18,6 +18,8 @@ Dlaczego na przykład ludzie fotografują nagrobki swoich bliskich? Dlaczego nie
 
 Czy pamiętamy dla nich, czy tylko dla siebie?
 
+Czy chcemy pamiętać śmierć, czy życie?
+
 Gdy następnym razem pójdziesz na grób kogoś bliskiego, rozejrzyj się też wokół, spójrz w górę. Wytrwaj w tym nietypowym rozglądaniu się, przez chwilę. Może zobaczysz coś więcej?
 
 _Quem quaeritis? Non est hic._
