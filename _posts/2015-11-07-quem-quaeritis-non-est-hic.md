@@ -1,9 +1,6 @@
 ---
 layout: blog
 category: blog
-splash: ""
-tags: 
-  - "null"
 published: true
 title: "Quem quaeritis? Non est hic."
 ---
