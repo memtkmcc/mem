@@ -1,12 +1,9 @@
 ---
 layout: blog
 category: blog
-splash: ""
-tags: null
-published: false
+published: true
 title: A Little Story
 ---
-
 
 The businessman was at the pier of a small coastal Mexican village when a small boat with just one fisherman docked. Inside the small boat were several large yellowfin tuna. The businessman complimented the Mexican on the quality of his fish and asked how long it took to catch them. The Mexican replied only a little while.
 
