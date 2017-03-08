@@ -1,9 +1,10 @@
 ---
 layout: blog
 category: blog
-published: false
+published: true
 title: 'Za górami, za lasami..'
-splash: "https://raw.githubusercontent.com/memtkmcc/starter/gh-pages/img/usr/lake-small.jpg"
+splash: >-
+  https://raw.githubusercontent.com/memtkmcc/starter/gh-pages/img/usr/lake-small.jpg
 ---
 
 > Czy nasze pokolenie może coś zrobić, by zakończyć obecną wojnę plemienną?
@@ -51,4 +52,3 @@ Ludzie lubią słuchać opowieści, albo wręcz uwielbiają ich słuchać, zwła
 Snucie opowieści, dla rozrywki, a może i z pożytkiem, to jest chyba najlepszy pomysł, w naszym wiekowym okienku. Wymaga wyobraźni i cierpliwości, a także ufności, że czas zrobi za nas resztę, jak w przypadku dobrego wina, czy zegarka po pradziadku.
 
 Jak to leciało? Z wdziękiem wyrzekając się rzeczy młodości?
-
