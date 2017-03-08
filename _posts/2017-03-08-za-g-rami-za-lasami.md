@@ -4,7 +4,6 @@ category: blog
 published: false
 title: 'Za górami, za lasami..'
 ---
-## A New Post
 
 > Czy nasze pokolenie może coś zrobić, by zakończyć obecną wojnę plemienną?
 
