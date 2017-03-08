@@ -3,6 +3,8 @@ layout: blog
 category: blog
 published: false
 title: 'Za górami, za lasami..'
+splash: >-
+  https://raw.githubusercontent.com/memtkmcc/starter/gh-pages/img/usr/lake-small.jpg
 ---
 
 > Czy nasze pokolenie może coś zrobić, by zakończyć obecną wojnę plemienną?
